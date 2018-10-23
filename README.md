@@ -1,0 +1,2 @@
+# kodlar
+İsmi Tekno
